@@ -1,0 +1,1 @@
+Beef Wellington, beef tenderloin smothered with mushroom duxelles, wrapped in puff pastry and baked.
